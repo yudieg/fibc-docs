@@ -17,9 +17,8 @@
       3. Statement of Christian experience.
       4. Restoration of former members of this church from whom the hand of fellowship has been withdrawn due to church discipline or prolonged absences.
     2. Applicants, who are baptized at First Indonesian Baptist Church, automatically become members.
-    3. Other applicants, who are not baptized at First Indonesian Baptist Church, shall be referred to the Elder-Deacon board and shall be listed in the bulletin two weeks prior to being voted by the congregation.
-    4. Upon the recommendation of the Elder-Deacon board, the candidates will be voted on by the congregation.
-    5. The Right Hand of fellowship shall be extended to all new members during any regularly scheduled worship service.
+    3. Other Applicants who are not baptized at First Indonesian Baptist Church, shall be first referred to the Elder Deacon Board for assessment on their faith and other qualifications. Their names will be listed on the church bulletin for two weeks upon approval and recommendation from the Elder Deacon Board.
+    4. The Right Hand of fellowship shall be extended to all new members during any regularly scheduled worship service.
 
   2. Classification of Members
 
